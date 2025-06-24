@@ -1,5 +1,5 @@
 # 💫 About Me:
-My core competencies include risk assessment, incident response, vulnerability management, and designing robust security architectures across diverse industries. I am confident that my experience and commitment to proactive security practices can contribute meaningfully to the team and the organization's goals.
+My core competencies include risk assessment, incident response, vulnerability management, and designing robust security architectures across diverse industries. I am confident that my experience and commitment to proactive security practices can contribute meaningfully to the team and the organization's goals. Interested in Read Team activity.
 
 
 ## 🌐 Socials:
